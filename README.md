@@ -94,7 +94,7 @@ I am a Bachelor of Science in Information Systems graduate with an elective trac
 I am passionate about transforming raw data into meaningful insights to support data-driven decision-making.
 
 📫 Email: gakutsukawa@gmail.com  
-📍 Philippines  
+📍 Parañaque City, Philippines
 
 ---
 
